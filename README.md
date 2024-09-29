@@ -1,2 +1,2 @@
 # gambar
-Eeee eeeeee eeeee 😭😭
+tempat aplot
